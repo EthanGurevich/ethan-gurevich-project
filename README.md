@@ -1,1 +1,0 @@
-# ethan-gurevich-project
